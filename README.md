@@ -1,5 +1,5 @@
-### Hi There! 👋
-**Computer Science student ambitious to break into the data science world** <br>
+### Hi There, my name is Precious! 👋
+**Computer Science student ambitious to break into the data science world** <br> <br>
 📫 How to reach me ...You can contact me via email: preciousmungin@gmail.com
 
  <!--- 💞️ I’m looking to collaborate on ...
